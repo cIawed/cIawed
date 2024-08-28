@@ -10,4 +10,4 @@
 </h4>
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=sharkcase&color=FFB6C1&style=flat&label=‎♡‎&base=1875" />
+<img src="https://komarev.com/ghpvc/?username=sharkcase&color=CEDBCA&style=flat&label=‎♡‎&base=1875" />
