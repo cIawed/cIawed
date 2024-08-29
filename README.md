@@ -6,8 +6,9 @@
 
 <h4 align="center">
   
-[![](https://i.postimg.cc/k5cf7myb/Untitled62-20240828093155.png)](https://rentry.co/savor)[![](https://i.postimg.cc/525mmVTR/Untitled62-20240828093051.png)](https://sparkler.cc/@savor)
+[![](https://i.postimg.cc/k5cf7myb/Untitled62-20240828093155.png)](https://rentry.co/savor)
 </h4>
+
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=sharkcase&color=CEDBCA&style=flat&label=‎♡‎&base=1875" />
