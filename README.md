@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.postimg.cc/Tw0SNbsB/download-9.png" />
+  <img src="https://i.postimg.cc/9fm8Y6Gd/tBsNnNO.png" />
 </p>
 <p align="center">
 <div></div>
@@ -11,4 +11,4 @@
 
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=sharkcase&color=CEDBCA&style=flat&label=‎♡‎&base=1875" />
+<img src="https://komarev.com/ghpvc/?username=sharkcase&color=000000&style=flat&label=‎♡‎&base=1875" />
