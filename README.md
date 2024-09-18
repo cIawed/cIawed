@@ -1,14 +1,14 @@
 <p align="center">
-  <img src="https://i.postimg.cc/9fm8Y6Gd/tBsNnNO.png" />
+  <img src="https://i.postimg.cc/qB27sCfK/download-15.png" />
 </p>
 <p align="center">
 <div></div>
 
-<h4 align="center">
+<h4 align="left">
   
-[![](https://i.postimg.cc/k5cf7myb/Untitled62-20240828093155.png)](https://rentry.co/howI)
+[![](https://i.postimg.cc/g2sXvLZs/Untitled62-Restored-20240918012602.png)](https://sntry.cc/pawh)
 </h4>
 
 
-<p align="center">
+<p align="left">
 <img src="https://komarev.com/ghpvc/?username=sharkcase&color=000000&style=flat&label=‎♡‎&base=1875" />
