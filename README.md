@@ -6,7 +6,7 @@
 
 <h4 align="center">
   
-[![](https://i.postimg.cc/k5cf7myb/Untitled62-20240828093155.png)](https://rentry.co/savor)
+[![](https://i.postimg.cc/k5cf7myb/Untitled62-20240828093155.png)](https://rentry.co/howI)
 </h4>
 
 
