@@ -28,7 +28,7 @@ and love me like a sailor?
 <p align="center"
   
 
-[rentry](https://rentry.co/504)ㅤㅤㅤㅤㅤ[atabook](ranpc.atabook.org)
+[rentry](https://rentry.co/504)ㅤㅤㅤㅤㅤ[atabook](https://ranpc.atabook.org/)
 
 </p
 
