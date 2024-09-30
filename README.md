@@ -1,35 +1,27 @@
-![](https://files.catbox.moe/s0koel.png)
-<p align="center"
-
-<img src="https://komarev.com/ghpvc/?username=sharkcase&color=000000&style=flat&label=‎♡‎&base=1875" />
-
-
-
-
-
-
-
-
-
+[![](https://i.postimg.cc/HLXtG3rG/Untitled95-20240929230805.png)](https://open.spotify.com/track/6ZJKiScaIdJ70XVKq5K73m)
 <p align="center"
 
 
-oh, won't you kiss me on the mouth
+
+
+
+
+
+
 
 <p align="center"
 
-and love me like a sailor?
 
 <p align="center"
 
-![image](https://github.com/user-attachments/assets/df0797e9-414b-454c-8b6f-8812846c543f)
+![](https://i.postimg.cc/1tywkSx6/Untitled94-20240929230226.png)
 
 
 <p align="center"
   
 
-[rentry](https://rentry.co/504)ㅤㅤㅤㅤㅤ[atabook](https://ranpc.atabook.org/)
+[![](https://i.postimg.cc/cCH9NwqQ/Untitled62-Restored2-20240929232322.png)](https://rentry.co/504)ㅤㅤㅤㅤ[![](https://i.postimg.cc/xjxp3xHg/Untitled62-Restored2-20240929232336.png)](https://rashomon.atabook.org/)
 
 </p
 
-![](https://files.catbox.moe/u20pnc.png)
+[![](https://i.postimg.cc/Kzc395LD/Untitled95-20240929231036.png)](https://open.spotify.com/track/6ZJKiScaIdJ70XVKq5K73m)
