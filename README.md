@@ -1,6 +1,6 @@
 <p align="center"
 
-[![](https://i.postimg.cc/cL9qzc1T/image.png)](https://rentry.co/504)
+[![](https://i.postimg.cc/8PwXyZrt/download.png)](https://rentry.co/504)
 
 <p aligen="center"
 
